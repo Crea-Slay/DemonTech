@@ -23,8 +23,7 @@ Form 2
 •	ThunderX3 (Straight Arm Rests)
 •	Ulti-Mat
 •	Vertagear (Racing)
-•	Autres
-Veuillez choisir la form 2 pour la majorité des chaises gaming.
+•	Autres /n Veuillez choisir la form 2 pour la majorité des chaises gaming.
 
 Form3
 
